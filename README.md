@@ -1,1 +1,1 @@
-fuck zlu
+old discord font
